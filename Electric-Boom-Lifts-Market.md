@@ -1,7 +1,6 @@
 The global Electric Boom Lifts market size was estimated at USD 1145.70 million in 2024 and is projected to reach USD 1886.89 million by 2032, exhibiting a CAGR of 5.70% during the forecast period.
 
 
-
 North America Electric Boom Lifts market size was estimated at USD 328.42 million in 2024, at a CAGR of 4.89% during the forecast period of 2025 through 2032.
 
 Download FREE Sample of this Report @ https://www.statsmarketresearch.com/download-free-sample/8044222/global-electric-boom-lifts-forecast-2025-2032-541
